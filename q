@@ -1,0 +1,1 @@
+sone se pahle plz send me voice of chutiya (bol ke)
